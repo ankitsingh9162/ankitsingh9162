@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Ankit Kumar
-**A passionate Mern Developer || DataScience Engineer**
+**A passionate MERN Stack Developer || Data Science Enthusiast**
 
 Email Me 👉 ✉️ **ankitpatna234@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
